@@ -19,7 +19,7 @@ taranis.sk@gmail.com
 
 königsbrücker platz 2, 01097 dresden
 
-facebook realname
+facebook realname (stephan kammel, born 09.09.1985 in dresden, germany, heutzutage freistaat sachsen)
 
 sourceforge https://sourceforge.net/u/fractalvoid/profile
 gitlab (deserted()( https://gitlab.com/fractalVoid
